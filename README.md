@@ -1,3 +1,3 @@
 # convocatoria
 Pruebas GI
-https://drive.google.com/file/d/1A757XzpYbzfBKcKqxIr7XC_aYGf-kzju/view?usp=sharing
+https://drive.google.com/drive/folders/1tUjczvDcNH3viNNYqzeOPtbNiUszTRAG?usp=sharing
